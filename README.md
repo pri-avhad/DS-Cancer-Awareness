@@ -8,7 +8,10 @@
 - [Urvi Ranjan](https://www.linkedin.com/in/urvi-ranjan-57a92019a/)
 
 # Video link 
-- [Youtube link](https://youtu.be/0KOIanXhIzQ)
+- [Youtube link](https://youtu.be/3djjcSaL5Co)
 
 # Workflow
 ![workflow (4)](https://user-images.githubusercontent.com/64562764/135541028-bd245f8e-fe6d-4a3f-a31f-b7c003bc7ba4.jpg)
+
+# Poster
+![Poster (1)](https://user-images.githubusercontent.com/64562764/138788703-533b97fc-006b-4485-8213-b92248045ccf.png)
