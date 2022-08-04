@@ -4,6 +4,7 @@
 
 - [Priyanka Avhad](https://www.linkedin.com/in/priyanka-avhad/)
 - [Vedanti Kshirsagar](https://www.linkedin.com/in/vedanti-kshirsagar/)
+- [Mehak Sati](https://www.linkedin.com/in/mehak-sati-2a856a1b5/)
 - [Mahek Nakhua](https://www.linkedin.com/in/mahek-nakhua/)
 - [Urvi Ranjan](https://www.linkedin.com/in/urvi-ranjan-57a92019a/)
 
